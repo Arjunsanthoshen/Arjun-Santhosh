@@ -3,4 +3,4 @@
 - 🌱 I’m currently pursuing B.tech Computer Science
 - 💞️
 - 📫 How to reach me INDIA
-Thank You
+-Thank You
